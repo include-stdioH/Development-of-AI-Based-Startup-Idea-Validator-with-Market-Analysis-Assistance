@@ -1,0 +1,1 @@
+# Development-of-AI-Based-Startup-Idea-Validator-with-Market-Analysis-Assistance
